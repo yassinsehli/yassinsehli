@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about anything, always happy to help
 - 📫 How to reach me : https://www.linkedin.com/in/yassine-s-101001/
-- 😄 Pronouns: Hey/Him
+- 😄 Pronouns: He/Him
